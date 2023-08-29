@@ -1,0 +1,1 @@
+# applied-AI-assignment-no.1
